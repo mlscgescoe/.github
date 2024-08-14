@@ -43,8 +43,6 @@ We provide totally free education, and any members found sharing paid content wi
 - We are committed to creating a safe and inclusive environment for all members, and we appreciate your cooperation in helping us achieve this goal.
 - By joining this community, you agree to abide by this code of conduct, and understand that failure to do so may result in disciplinary action, up to and including removal from the community.
 
-#### We strive to provide a safe and inclusive environment for all members and appreciate your cooperation in helping us achieve this goal.
-
 Join the Community Whatsapp group here: https://chat.whatsapp.com/CP8Z8noRn8jE4J1lF5Pl8g
 
 Regards <br>
@@ -52,6 +50,3 @@ Regards <br>
 Microsoft Learn Student Ambassador, <br>
 [MLSC GESCOE](https://linktr.ee/mlscgescoe) <br>
 
-
-
-Thank you!
